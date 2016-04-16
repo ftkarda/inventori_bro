@@ -1,0 +1,2 @@
+# inventori_bro
+oooo
